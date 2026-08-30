@@ -1,2 +1,3 @@
 ## Hi I'm seannn uhh. I'll rmk this soon. 
-<img src="https://outcomememoriesfanon.fandom.com/wiki/Sean_%28Seildirectory%29" width="300">
+<img src="https://www.google.com/imgres?q=seildirectory%20sean&imgurl=https%3A%2F%2Fstatic.wikia.nocookie.net%2Foutcomememoriesfanon%2Fimages%2Fb%2Fbd%2FSeanRender2.png%2Frevision%2Flatest%2Fscale-to-width%2F360%3Fcb%3D20251211161644&imgrefurl=https%3A%2F%2Foutcomememoriesfanon.fandom.com%2Fwiki%2FSean_(Seildirectory)&docid=hWiKxJhiVzDB_M&tbnid=e9PTZQ6AH7G4hM&vet=12ahUKEwjjvKDGtMeWAxU2v4kEHbZYG6gQnPAOegQINhAA..i&w=360&h=388&hcb=2&ved=2ahUKEwjjvKDGtMeWAxU2v4kEHbZYG6gQnPAOegQINhAA<img width="360" height="388" alt="image" src="https://github.com/user-attachments/assets/c7f437c1-3925-42d2-96be-913e500d889e" />
+g" width="300">
