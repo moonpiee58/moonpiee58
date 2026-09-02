@@ -4,7 +4,10 @@
    sʜɪᴘs ᴅɴɪᴜғ.(ᴘʟs ᴀsk. 
 
   
-ʀᴏsᴇᴍᴀʀʏ ᴡᴀʟᴛᴇɴ ʏᴜᴍᴇ. 
+ʀᴏsᴇᴍᴀʀʏ ᴡᴀʟᴛᴇɴ 
+And shedletsky 
+(NOT THE REAL DUD JUST THE FICTION GUY)
+ʏᴜᴍᴇ. 
 
 sᴇᴀɴ ᴀɴᴅ ʜᴀɪʟᴇʏ ғɪᴄᴛɪᴏɴ ᴋɪɴ. 
   
