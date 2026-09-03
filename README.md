@@ -3,7 +3,7 @@
 
       ʀᴏʙʟᴏx: sᴍᴀʟʟᴅᴏɢɢʏ998
 
-               15 ʏ/ᴏ. ᴀɢᴇ ɪɴᴛ ʟɪᴍɪᴛs 13-1ɪ
+               15 ʏ/ᴏ. ᴀɢᴇ ɪɴᴛ ʟɪᴍɪᴛs 13 -17
 
 
 <img width="637" height="358" alt="image" src="https://github.com/user-attachments/assets/3d75cfa7-d9bc-4a8e-8ffc-82f5dd70dc21" />
