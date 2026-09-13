@@ -5,12 +5,16 @@ HI GUYS HI HI HI
 
 
 
+<img src="<img width="473" height="370" alt="image" src="https://github.com/user-attachments/assets/294c156a-5e89-4764-b475-67c0bdfee5a6" />
+" width="300">
 
 
-<img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/d360aaf3-8f7f-4704-868e-468fab830d95" />
 
 
-<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/55ee8e32-04e0-4766-9374-2e60903bba96" />
+Doubles strictly dni plsplsplspsl 
 
+
+<img src="<img width="474" height="474" alt="image" src="https://github.com/user-attachments/assets/37e7b06e-6a79-4ad9-8b46-272cb00bb4d6" />
+" width="300">
 
 
